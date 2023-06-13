@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @prxisee
+- 👀 I’m interested in both track & field and skateboarding.
+- 🌱 I’m currently learning more about programming.
+- 💞️ I like to read and swim in my free time.
+- 📫 You can reach me through my email at praiseakinyele28@gmail.com
